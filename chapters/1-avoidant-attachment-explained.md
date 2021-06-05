@@ -54,11 +54,11 @@ In a famous [experiment](https://www.researchgate.net/publication/277026014_Ains
 Unlike the securely attached, who learn to expect their needs will be consistently met, or the anxiously attached, who learn they must work, fight or sacrifice to get those needs recognised, the avoidant child simply accepts and internalises emotional abandonment - that their needs will not be met - and learns not to try. So avoidant children then often go unnoticed because they are considered “good” and “well-behaved” and “never a bother.” By all appearances, the avoidant child seems independent; however, this appearance of autonomy is the child’s adaption to his or her caregiver’s low valuation of attachment behaviours. True independence cannot effectively be achieved by way of neglect. 
 
 > #### Psychobabble: Enmeshment
-
+>
 > **Proper Bonding:**  Functional emotional connection from parent to child that is rooted in a mature, stable place, that nurtures and supports the child.
-
+>
 > **Enmeshment:** The energy flow is extracted from the child to nourish the parent.  Enmeshed children get drained and used by the caregiver's need for companionship, attention, and love. Children grow up to become avoidantly attached. 
-
+>
 > Enmeshment is a form of emotional incest. Parents who draw their children into their relationship may be too immature to be emotionally intimate with another adult at times; they find it threatening and painful. They may not be in a secure relationship themselves, and are deprived of a partner's full support and emotional connection. But they realize they can be intimate with their children because the children are vulnerable and won’t abandon them, but must stay near them for survival. Avoidants can grow up feeling very good about themselves in their role in the family of origin because they feel special to have a role taking care of one or both parents. They learn that to be connected means they get to be the High Power to someone else, and yet it also means to be drained (engulfed).
 
 ### Result: self-denial of needs, self-blame, emotional suppression & distrust
@@ -69,25 +69,24 @@ As a result, they adapt by becoming removed from their own emotions and developi
 
 
 > "Some avoidant children can become good readers of other people's emotional states (though not their own). It makes sense to gauge the other person's expectations if you are anxious about being rejected when you get things wrong but accepted when you get things right. Being seen as competent and successful by other people feels safer than being intimate and open. Although parents might reject and devalue children's attachment needs, parental approval and regard are granted when children achieve task competence, physical prowess, or academic success. Positive self-regard is therefore conditional on the self being able to contain emotion, and the self seeing itself (and believing it is seen by others) as competent and in control. This produces an achievement-orientated personality, which over time might lead to perfectionist tendencies, workaholism and the drive for material success. They expect validation or praise from doing things, not in and of themselves, because without these external competencies the self is not worthy.
-
+>
 > For avoidant children the emotion most likely to erupt is anger because anger serves to keep others at bay. They relate with others somewhat defensively, always anxious that the self, if viewed too closely, isn't going to be likeable or good enough, a self that might therefore be rejected. So children are more likely to select friends with similar attachments to their own. They focus on factual conversations as an impersonal, non-emotionally based way of getting close to people. And in play they avoid storylines that get into any sort of difficulty, where need or emotion might have to be displayed. They immobilise the attachment system by excluding fear, pain and sadness from conscious awareness."
 
 \- Attachment across the Lifecourse
 
 > #### Psychobabble: The Assumption of Non-Mutuality
-
+>
 > Because the avoidant is born out of a dismissive/derogating parenting style, the basic experience of relationships as non-mutual becomes concretised in early childhood. The dismissive parenting style values things and self over relationship and attachment. The experience of true mutuality is replaced by basic insecurity about the self and other; the attachment relationship is not safe or secure and it is not held together as much by attraction as by fear, either of loss of self or loss of other.
-
+>
 > The avoidant bristles in response to an approaching primary attachment figure because he or she does not believe in mutuality. The approaching figure wants something from him or her, and reciprocity is not possible. This leaves the avoidant in a dilemma that can only be resolved with compliance, withdrawal, anger, or avoidance. The avoidant experiences shame and fear with the emergence of aversion toward the primary attachment figure. He or she fears the other will recognise this aversive reaction, and because the cause of this reaction is a mystery even to the avoidant, the experience is one of shame: “There is something wrong with me.”
-
+>
 > The therapist can help both the avoidant and his or her partner understand that true mutuality and inclusion are foreign to the avoidant, who believes he or she is only needed and never really wanted. Feeling needed but not wanted is a central attachment injury for the avoidant, who had to adapt to a non-reciprocal, dismissive, or derogating caregiver.
-
+>
 > Insight for the avoidant is notoriously poor, and problems with autobiographical memory and somatoaffective awareness are noted. The avoidant’s declarative memory is filled with ideas about parents and childhood, but lack autobiographical memories filled with the experience of parents and childhood. Most often, the avoidant’s report is idealised, lacking in detail, and superficial. For this reason, the avoidant is largely unaware of his or her attachment dilemma, and because adaptation has been so complete, he or she does not appear distressed and tends to see nothing wrong with his or her avoidant strategies.
 
 ### Complete adaptation: denying the origin
 
 > "Dismissing attachment is characterized by the avoidance of feelings, memories, or longings that might drive away the attachment figure. This is avoidance in the service of proximity. Because attachment behaviour has as its aim the maintenance of proximity, the function of this avoidance is to disable feelings and ideas that threaten the real or perceived relationship. By deactivating attachment in this way, the patient shifts attention away from memories of potentially painful relationship episodes with caregivers, thereby avoiding possible threat to his or her characterisation of the relationship. Such memory processes are adaptive - forgetting certain kinds of betrayal experiences from a primary caregiver can be necessary for the individual’s survival."
-
 
 \- in other words, the function of this suppressing adaptation was to deny feelings in the service of maintaining a close relationship with a caregiver, even if parts of that relationship had given the child pain. Avoidants had to train themselves to be emotionally unattuned for protection. While around their family, it is strongly in their survival and social interests to repress rather than recognise, and to divert their frustrations from the original source. Consequently as adults, people with an avoidant attachment style may have a difficult time recognising the origins of their patterns and often initially report happy childhoods or struggle to remember. They often have poor access to early emotional memories, having built a defensive shield of self-esteem and self-sufficiency that requires negative memories to be suppressed. So the avoidant preservation strategy is to avoid confronting any negative memories. They will speak vaguely about their childhoods and often describe them in idealised terms, though when pressed for incidents that might illustrate these descriptions, their memories can contradict their assessments. Denial is an effective shield against pain- avoidants would prefer not to reflect on such things but when asked directly tend to downplay the significance of events that would be expected to cause distress and rationalise any harsh treatment towards themselves ("they didn't mean it," "it did me good" etc). Such idealisation of the parental relationship can also contribute to the 'perfect partner' relationship fantasy, where no partner can measure up to the mythologised parental union.
 
@@ -100,9 +99,9 @@ Of all styles, avoidants particularly struggle to acknowledge their parents may 
 But it's worth noting that many people with insecure attachment styles can come from overtly very happy family backgrounds and loving homes - given that insecure styles represent half the population, it's just very easy to happen. Our parents can't be there to meet our needs 100% of the time. And when parents aren't aware of and alert to their own attachment patterns, insecure styles are often passed down families in cycles that repeat themselves. The best predictor of a child’s security of attachment is in fact not what happened to his parents as children, but rather how his parents made sense of those childhood experiences - if they could acknowledge and respond to their own attachment patterns.
 
 > #### Psychobabble: How We Carry Trauma
-
+>
 > From [this](https://www.psychologytoday.com/gb/blog/mindful-anger/201804/9-steps-healing-childhood-trauma-adult) article about Trauma: "trauma generates emotions, and unless we process these emotions at the time the trauma occurs, they stay in our unconscious until we process it. The healthy flow and processing of distressing emotions such as anger, sadness, shame  and fear is essential to healing childhood wounds as an adult.
-
+>
 > The healthiest response to childhood wounds is also the rarest: when the trauma first occurs, we recognise the violation in our sense of self, feel the natural emotions that follow, and then realise that the violation doesn't say anything about us personally - and thus we don't make negative meaning of it and can let it go. But because emotions like anger and sadness are painful - and because crying or confronting others is often not socially acceptable - this process doesn't happen automatically. Instead we may suppress our emotions rather than feel and process them. As a child this process is even more difficult. What can feel like a pinprick to an adult can feel like a stab wound to a child and create lasting damage. Then we carry these emotional stab wounds into adulthood and they affect our relationships, career, happiness, health, everything... until we process them and heal by feeling our feelings."
 
 ## What does this mean for adults?
@@ -146,25 +145,24 @@ Searching for 'the one'  or longing for an ex allows the avoidant person to conv
 When arguing with an avoidant, many times they wall themselves off and become cold and aloof. Resolving conflict would require them to become vulnerable, a hurdle it is often too hard to overcome. It can be extremely frustrating for their partners because they don’t seem willing to engage in conversations regarding feelings. They are often psychologically defended and have the ability to shut down emotionally. Even in heated or emotional situations, they are able to turn off their feelings and not react. For example, if their partner is distressed and threatens to leave them, they would respond by saying, “I don’t care.” This can mean they lack the flexibility to be able to combat relationship challenges.
 
 > "If you have an avoidant attachment style, your independence and self-sufficiency are more important to you than intimacy. You can enjoy closeness — to a limit. In relationships, you act self-sufficient and self-reliant and aren’t comfortable sharing feelings. (For example, in one study of partners saying goodbye in an airport, avoiders didn’t display much contact, anxiety, or sadness in contrast to others.) You protect your freedom and delay commitment. Once committed, you create mental distance with ongoing dissatisfaction about your relationship, focusing on your partner’s minor flaws or reminiscing about your single days or another idealized relationship.
-
+>
 > You’re hypervigilant about your partner’s attempts to control you or limit your autonomy and freedom in any way. You engage in distancing behaviors, such as flirting, making unilateral decisions, ignoring your partner, or dismissing his or her feelings and needs. Your partner may complain that you don’t seem to need him or her or that you’re not open enough, because you keep secrets or don’t share feelings. In fact, he or she often appears needy to you, but this makes you feel strong and self-sufficient by comparison.
 > You don’t worry about a relationship ending. But if the relationship is threatened, you pretend to yourself that you don’t have attachment needs and bury your feelings of distress. It’s not that the needs don’t exist - they’re repressed. Alternatively, you may become anxious because the possibility of closeness no longer threatens you.
-
+>
 > Even people who feel independent when on their own are often surprised that they become dependent once they’re romantically involved. This is because intimate relationships unconsciously stimulate your attachment style and either trust or fear from your past experiences. It’s normal to become dependent on your partner to a healthy degree. When your needs are met, you feel secure."
 
-
 > #### Case Study: James
-
+>
 > When James first came to see me for therapy, he was a successful 40-something businessman with a wife and three children. He had done very well financially, and his children were all young adults who would be leaving home soon. James came seeking help for longstanding depression. He initially described his childhood as happy and free. But as he told me his story, it became evident that he had been greatly affected by the absence of a vital ingredient.
-
+>
 > James grew up the youngest of seven children. He was a surprise, born nine years after his next youngest sibling. When James was born, his mother was 47 and his father 52. James’s parents were good, hard-working people who meant well, and he always knew they loved him. But by the time James was born, they were tired of raising children, so James essentially raised himself. As a child, James’s parents did not ask to see his report cards (all A’s), and he didn’t show them. If he had a problem at school, he didn’t tell his parents; he knew he must handle it himself. James had complete freedom to do anything he wished after school because his parents seldom asked him where he was. They knew he was a good kid, so they didn’t worry. Even though James enjoyed this extensive freedom from rules and structure, he grew up feeling deep within himself that he was alone. 
-
+>
 > The message James internalized from all this freedom was “don’t ask, don’t tell.” He understood from a very early age that his accomplishments were not to be shared, nor his failures, difficulties or needs. Even though he couldn’t recall his parents ever actually telling him such a thing, he absorbed it into the very fiber of his being that this was life for him. It became a part of his identity.
-
+>
 > When I first met James, he seemed somewhat emotionless and self-contained. His wife, after 15 years of marriage, was at the end of her rope. She felt that James was incapable of connecting with her emotionally. He told her he loved her often, but seldom showed her any emotion, positive or negative. She pointed out that he was a wonderful provider, but described their relationship as empty and meaningless. James described himself as feeling empty inside. He revealed that the one person in the world he actually felt emotional about was his teenage daughter, and that he sometimes resented her for being important to him. 
-
+>
 > James’s frequent fantasy was of running away to live alone on a deserted tropical island. All his life he experienced periodic wishes to be dead. He was mystified about why he would feel this way since he knew that he had such a great life. 
-
+>
 > Can you guess the ingredient that was missing from James’s childhood? It was emotional connection. Emotions were treated as non-existent in his family. There was little interaction of any kind between James and his parents. No positives, but none of the important negatives, either. 
-
+>
 > He didn’t get to see joy in his parents’ eyes as they looked at his report card, or experience their anxiety or anger when he came home from school long after dark. James’s relationship with his parents could be summed up by one word: cordial. The message James’s parents unwittingly taught him, completely outside of his own and their awareness, was “don’t have feelings, don’t show feelings, don’t need anything from anyone, ever.” James’s fantasies about being dead or running off to a tropical island were the best ways he could imagine to accomplish that mandate. He was a good boy who learned his lesson well.

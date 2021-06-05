@@ -15,7 +15,7 @@ freetoattach.com
 ...Sound familiar?
 
 > "My entire life, I was convinced that there was something wrong with me. That I was broken. That I was unable to love. Relationship after relationship, I struggled to reciprocate the affection of my partners. It seemed the more they opened up to me, the more it shut me down. The more they moved towards me, the more I pulled away. Where my heart was supposed to be, I just felt a cold numbness.
-
+>
 > I looked around and it felt like everyone else was falling in love with ease. Opening their hearts. Living out their fairy-tale romances. But try as I might, that realm seemed locked off to me. Nope, I was broken. Fucked up. Alone. And there was nothing I could do about it. Until I came across the concept that changed everything."
 
 [- The relationship theory that melted my cold heart](http://www.jaeminyi.com/relationship-theory-that-melted-my-cold-heart/?fbclid=IwAR3KInqFqUUqhkHd0yyod043jJDMJL_peGl-c0zAJ1zXF2L3dxR4RXgwUSU)
@@ -27,9 +27,9 @@ But then the doubts start creeping in. Your partner doesn't live up to your expe
 But then you find yourself in one failed relationship after another, repeating the same cycle. 
 
 > "I’ve been single for nearly all of my adult life, am still single, and I finally figured out what the problem is. I used to believe the reason was because I hadn’t met the right person yet. I believed that all I had to do was keep on enjoying life, focus on my passion, identify the qualities I was looking for and soon enough I would attract the perfect partner. I now know this approach to life is total bullsh*t. 
-
+>
 > Every time I meet someone new, the same thing happens. I feel incredible excitement about the possibility of sparks flying. I spend some time with them. The usual sinking feeling in the pit of my stomach returns. I conclude that she’s “not quite right” and move on to the next person. Week after week, month after month and year after year this same thing happens. I continue to succeed at my external focuses in life, but don’t have any success at building any kind of emotional and loving connection with a romantic partner. 
-
+>
 > Recently I read about attachment theory and came to the sudden and painful realization that the problem isn’t the women I’ve been dating. The problem is me. I’m the “avoidant type”. And I now know what to do to live a better life." 
 
 [- I'm 36, still single and finally figured out why](https://ideapod.com/im-36-still-single-finally-figured/)
@@ -49,9 +49,9 @@ Avoidantly attached people will often date a partner they initially think is ama
 ### The Withdrawal Defence
 
 > "Withdrawal tendencies are a coping mechanism cultivated in childhood. If we weren't getting our needs met we soon learn to retract within ourselves. Over time this coping strategy becomes second nature. When we get into a relationship, that feeling of needing to withdraw is initially masked by the oxytocin and different chemicals firing off within our brain. Over time those chemicals start to subside, the mask falls off of those inner emotions and we start feeling very vulnerable and agitated at the same time.
-
+>
 > One of these six basic human needs is the need for connection. Each and every single last one of us is wired for connection. When withdrawal coping mechanisms get triggered, we have one of our six basic human needs fighting inside for connection while at the same time this coping mechanism is fighting to keep distance. So on the one hand you have a very strong need for closeness, while at the same time you have a very strong need for distance. Both of these things battle it out inside of you, which makes you feel very uncomfortable pretty much 24 hours a day and it puts you into a fight or flight response, feeling the need to run as well as to stay. 
-
+>
 > So we feel torn. And because we're not able to see the future, we tell ourselves stories - and a lot of these stories have to do with the worst case scenario instead of the best-case scenario. When you tell yourself the worst case scenario, your idea turns into running instead of staying. This is the body's natural fear response. To counter it we must learn new ways of getting our needs met within the connection, and learn tell ourselves new stories."
 
 Check out [this great article](https://www.tracycrossley.com/avoidant-attachment/?fbclid=IwAR1Elpudi5VM2re-mBNt6KaY7AQjA_LdbIsf9-X44fbUcFvq04r4sLftMZ8) for an overview of avoidant attachment from an avoidant-turned-therapist.
