@@ -17,8 +17,8 @@ freetoattach.com
 > "My entire life, I was convinced that there was something wrong with me. That I was broken. That I was unable to love. Relationship after relationship, I struggled to reciprocate the affection of my partners. It seemed the more they opened up to me, the more it shut me down. The more they moved towards me, the more I pulled away. Where my heart was supposed to be, I just felt a cold numbness.
 >
 > I looked around and it felt like everyone else was falling in love with ease. Opening their hearts. Living out their fairy-tale romances. But try as I might, that realm seemed locked off to me. Nope, I was broken. Fucked up. Alone. And there was nothing I could do about it. Until I came across the concept that changed everything."
-
-[- The relationship theory that melted my cold heart](http://www.jaeminyi.com/relationship-theory-that-melted-my-cold-heart/?fbclid=IwAR3KInqFqUUqhkHd0yyod043jJDMJL_peGl-c0zAJ1zXF2L3dxR4RXgwUSU)
+>
+> [- The relationship theory that melted my cold heart](http://www.jaeminyi.com/relationship-theory-that-melted-my-cold-heart/?fbclid=IwAR3KInqFqUUqhkHd0yyod043jJDMJL_peGl-c0zAJ1zXF2L3dxR4RXgwUSU)
 
 You want that perfect partnership and get into a relationship with great intentions - this time it's going to work out!
 
@@ -31,8 +31,8 @@ But then you find yourself in one failed relationship after another, repeating t
 > Every time I meet someone new, the same thing happens. I feel incredible excitement about the possibility of sparks flying. I spend some time with them. The usual sinking feeling in the pit of my stomach returns. I conclude that she’s “not quite right” and move on to the next person. Week after week, month after month and year after year this same thing happens. I continue to succeed at my external focuses in life, but don’t have any success at building any kind of emotional and loving connection with a romantic partner. 
 >
 > Recently I read about attachment theory and came to the sudden and painful realization that the problem isn’t the women I’ve been dating. The problem is me. I’m the “avoidant type”. And I now know what to do to live a better life." 
-
-[- I'm 36, still single and finally figured out why](https://ideapod.com/im-36-still-single-finally-figured/)
+>
+> [- I'm 36, still single and finally figured out why](https://ideapod.com/im-36-still-single-finally-figured/)
 
 ### There could be a reason - and a solution. <br/> You may be someone who has an avoidant attachment style.
 

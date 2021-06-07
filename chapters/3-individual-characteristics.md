@@ -1,4 +1,5 @@
 # Individual Characteristics
+https://www.freetoattach.com/individual-characteristics
 
 It can be hard to tell someone's attachment style until you know them well. Attachment triggers are activated in close relationships, and avoidant types in particular tend to hold their cards close to their chest. But they will have a number of common individual traits. Attachment styles exist on a spectrum; we all have them to different degrees. The characteristics on this site are for someone who registers as strongly avoidant.
 
@@ -50,7 +51,7 @@ Avoidants invest heavily in things outside relationships - some (not all) can be
 
 Avoidants are protective of their own space and can withdraw totally, not always being present when together. Growing up, they were only able to get comfort or relief from anxiety by being alone, so they're used to being by themselves when upset and don’t really know how to get relief or comfort with someone without getting space from them. They never want help for anything. Likewise, because they were never taught it they often are not confident in how to give care, providing comfort and support in return, and the need for it can produce anxiety. Avoidants are masters of self-soothing, which often leads to reliance on unhealthy obsessive patterns around substances, exercise, and food. It feels unsafe to show who they are; they’re often dealing with self-doubt and uncertainty. They may busy themselves with a wide array of useless tasks in order to place distance between themselves and others.
 
-> Psychobabble: The Origins & Cycle of Guilt
+> #### Psychobabble: The Origins & Cycle of Guilt
 >
 > \- Thais Gibson
 >
