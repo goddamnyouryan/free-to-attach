@@ -1,0 +1,16 @@
+---
+title: Free To Attach
+subtitle: Why we exit relationships and how to get the love we want
+author: FTA Guy and goddamnyouryan
+subject: "avoidant attachment"
+keywords: [attachment,avoidant, self improvement]
+language: en-US
+lof: true
+lof-own-page: true
+toc-own-page: true
+titlepage: true
+titlepage-text-color: "333333"
+titlepage-rule-color: "00737C"
+papersize: letter
+colorlinks: true
+---

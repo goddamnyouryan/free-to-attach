@@ -67,7 +67,7 @@ As you become more confident identifying your emotions and verbalising them in w
 
 We all distract ourselves from difficult feelings at times. But while we are distracting, we are only suppressing rather than dealing with feelings, which means they stick around. Used too often, these are unhealthy coping mechanisms that suppress our feelings and only serve to distract us from learning through our emotions about the parts of our life and ourselves that may really need to change. It's important to become conscious of the techniques you use (drinking, drugs, shopping, food, tv binges, social, dating & sex etc) and how often you are using them. If you sense yourself reaching for these to block something out, accept that your emotions are valid to address and consider heading through the pain, feeling, discovering, talking, accepting it and trying to understand it instead. And better still, seek support about your emotions directly and talk to someone about how you are feeling, embracing 'better out than in'. Even if it feels painful at the time, this will all ultimately set you on a more positive path to understanding how you are feeling and why, that your feelings are valid, working out what to do about it and moving past it healthily.
 
-![How to sit with discomfort](../images/11-1.png)
+![How to sit with discomfort](images/11-1.png)
 
 ## 2. Come into the present
 

@@ -530,4 +530,4 @@ The most important thing is to first know ourselves and be truly up-front about 
 
 The dual fears of losing the other and losing ourselves are the underlying causes of our unloving, reactive behaviour. These fears are deeply rooted. They cannot be healed or overcome only by getting someone else’s love if we aren't ready to do the work. On the contrary, we must heal these fears to be able to share love with each other. Until we heal what hurt us, we may bleed on people who didn't cut us.
 
-![Being true to yourself comic](../images/14-1.png)
+![Being true to yourself comic](images/13-1.png)

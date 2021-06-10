@@ -35,7 +35,7 @@ For example, we may be part secure attachment, part anxious, but our anxious att
 
 Half the population has an insecure attachment style (more in the dating pool) and everyone can exhibit elements to some degree in different situations - it's completely, boringly normal. So don't try to judge, shame or write off yourself or a partner if you think you/they might be demonstrating one! Most people just aren't aware. Attachment theory is simply one method to give us even deeper insight into the process of how we relate to others, and awareness of dynamics that can affect our relationships. With awareness comes ability to control, and we can choose to reprogram ourselves to enact the dynamics that will make us happiest, and our relationships strongest. The key here for happiness in a relationship is simply to both become aware of your natural tendencies towards a particular style and to each take responsibility for catching your patterns before you descend into them.
 
-![Attachment Style Infographic](../images/1-1.png)
+![Attachment Style Infographic](images/1-1.png)
 
 ## Where does avoidant attachment come from?
 

@@ -122,7 +122,7 @@ Unconsciously seeking to repair their core wound, the anxiously attached may be 
 
 Read [this](https://www.kylebenson.net/toxic-relationship-2/) on the avoidant-anxious relationship.
 
-![Anxious Avoidant Cycle](../images/4-1.png)
+![Anxious Avoidant Cycle](images/4-1.png)
 
 #### Avoidant - Avoidant Pairing
 
