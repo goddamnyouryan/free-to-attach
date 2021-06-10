@@ -50,13 +50,13 @@ Get in touch with your emotions by writing down how you feel every day. Again, t
 An avoidant on journaling tips:
 
 > Having avoidant traits simply means you have also avoided your own feelings. Sometimes when it’s really really hard to put it to words try writing to yourself first, pretend you are talking to journal therapist. Once you find the words for your feelings, you can start to find answers to why you are feeling this way.​
->  
+>
 > Ask yourself “what words can I use to describe my feelings?” to find out “what am I feeling?”\
 > ask “What do I actually want from this?” "what specific need are my emotions expressing to me?" You want to try to get as specific as possible so the problem doesn't feel overwhelming\
 > ask “why is it I want to leave?” or “why is it I want to go back” or “why do I want to stay?”\
 > ask “what am I looking for?” (or what feeling am I looking for)\
 > ask “what am I afraid of?”
->  
+>
 > In terms of style of writing, I personally did it in chat log style, thinking I am talking to someone and back to myself. You can even make up a character for this and make it a fun experience! When you are confused about whether you want something, someone or not, ask yourself how much percentage is your Yes on this, is it 30% yes? 50% yes? or 70–90% yes? Anything below 50% Yes is a full “No.” I have to use this to realize what I am actually feeling. Don’t overthink, write as it comes out, it’s more accurate. It’s okay to hate your feelings, but accept they are there."
 
 #### Talk
@@ -78,18 +78,18 @@ Avoidant people can feel trapped in their head, analysing, disassociated from th
 To combat this experience physically, practise returning from the sympathetic nervous system (fight/flight/freeze - survival mode) into your parasympathetic nervous system (relaxing and calming) through anything that encourages your mind to slow down and become more present with what you're doing, such as:
 
 - meditation
-- [mindfulness](https://www.psychologytoday.com/us/basics/mindfulness) 
+- [mindfulness](https://www.psychologytoday.com/us/basics/mindfulness)
 - breath work
 - creative activities
 
 > #### A Guided Meditation Exercise
->  
+>
 > One of the purposes of meditations is to interact with images that may bring us joy, calm our senses, and give us insight. There is the potential for tremendous healing while working with images, for there are no bounds of past, present, and future, and we can essentially create whatever reality we desire. This new perception created in a meditative state is able to soften the context of our memory and give us relief. The negative self-beliefs, traumas, and fears that we experienced as children may now be dispelled by our older, more seasoned selves. We simply have to go back and visit that younger self. We must reacquaint ourselves with the wounded child within. Here is a guided meditation to help you:
-> 
+>
 > Find a comfortable spot in your home or office. Somewhere that has no loud traffic noise. Turn off your cell phone. Take off your shoes and socks. Sit down on the floor. Reach down and grab your feet; give them a gentle rub. Sit up with your spine straight and head level.
-> 
+>
 > Now close your eyes. Begin to breathe deeply. Inhale though your nose. Imagine that all of the air you pull in is full of love and compassion. As you exhale through your mouth, imagine that all of the stress and worry are leaving your body. In with kindness. Out with judgment. In with joy. Out with concern.
-> 
+>
 > Imagine that you’re sitting outside. The grass feels soft against your skin. You’re looking at the beautiful purples, oranges, and blues that surround you and sway in the breeze. The air is warm and full of light, and you watch as birds move above your head.
 >
 > You notice that a small child is walking toward you across the open field. You recognize the way the child walks. You get up to meet the child. Looking down into their eyes, you realize that you are looking into the eyes of your younger self. You reach out and take the hand of your younger self and guide him/her to sit down next to you. This is the kid who was not able to express themselves when they felt neglected and alone. This is the part of you that felt scared and unwanted. You bring this young child onto your lap and hug them tight. You tell them that everything is going to be okay. You hold them tight for several minutes consoling and reassuring them. You tell them that you will always be there to take care of them.

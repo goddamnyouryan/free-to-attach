@@ -3,7 +3,7 @@ https://www.freetoattach.com/avoidants-experiences
 
 Avoidants and those who date them tell their stories...
 
-Also read this article: [Six lessons from a love avoidant's journey to secure](https://www.emotionenhancement.com/single-post/-Lessons-From-A-Love-Avoidants-Journey-To-Secure-Attachment) 
+Also read this article: [Six lessons from a love avoidant's journey to secure](https://www.emotionenhancement.com/single-post/-Lessons-From-A-Love-Avoidants-Journey-To-Secure-Attachment)
 
 ## How attachment theory helped us get back together
 

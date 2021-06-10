@@ -3,8 +3,8 @@ freetoattach.com
 
 ## Why we exit relationships and how to get the love we want
 
-> "I can't seem to meet the right person"  
-> "I'm not feeling what I should feel"  
+> "I can't seem to meet the right person"
+> "I'm not feeling what I should feel"
 > "No one compares to my ex"
 > "My relationship's making me feel trapped"
 > "My partners are too needy"
@@ -22,15 +22,15 @@ freetoattach.com
 
 You want that perfect partnership and get into a relationship with great intentions - this time it's going to work out!
 
-But then the doubts start creeping in. Your partner doesn't live up to your expectations. You often feel the need to get away, but don’t understand why. When you get that feeling you assume you’re beginning to be less attracted to your partner, even irritated by them - so why prolong the agony? 
+But then the doubts start creeping in. Your partner doesn't live up to your expectations. You often feel the need to get away, but don’t understand why. When you get that feeling you assume you’re beginning to be less attracted to your partner, even irritated by them - so why prolong the agony?
 
-But then you find yourself in one failed relationship after another, repeating the same cycle. 
+But then you find yourself in one failed relationship after another, repeating the same cycle.
 
-> "I’ve been single for nearly all of my adult life, am still single, and I finally figured out what the problem is. I used to believe the reason was because I hadn’t met the right person yet. I believed that all I had to do was keep on enjoying life, focus on my passion, identify the qualities I was looking for and soon enough I would attract the perfect partner. I now know this approach to life is total bullsh*t. 
+> "I’ve been single for nearly all of my adult life, am still single, and I finally figured out what the problem is. I used to believe the reason was because I hadn’t met the right person yet. I believed that all I had to do was keep on enjoying life, focus on my passion, identify the qualities I was looking for and soon enough I would attract the perfect partner. I now know this approach to life is total bullsh*t.
 >
-> Every time I meet someone new, the same thing happens. I feel incredible excitement about the possibility of sparks flying. I spend some time with them. The usual sinking feeling in the pit of my stomach returns. I conclude that she’s “not quite right” and move on to the next person. Week after week, month after month and year after year this same thing happens. I continue to succeed at my external focuses in life, but don’t have any success at building any kind of emotional and loving connection with a romantic partner. 
+> Every time I meet someone new, the same thing happens. I feel incredible excitement about the possibility of sparks flying. I spend some time with them. The usual sinking feeling in the pit of my stomach returns. I conclude that she’s “not quite right” and move on to the next person. Week after week, month after month and year after year this same thing happens. I continue to succeed at my external focuses in life, but don’t have any success at building any kind of emotional and loving connection with a romantic partner.
 >
-> Recently I read about attachment theory and came to the sudden and painful realization that the problem isn’t the women I’ve been dating. The problem is me. I’m the “avoidant type”. And I now know what to do to live a better life." 
+> Recently I read about attachment theory and came to the sudden and painful realization that the problem isn’t the women I’ve been dating. The problem is me. I’m the “avoidant type”. And I now know what to do to live a better life."
 >
 > [- I'm 36, still single and finally figured out why](https://ideapod.com/im-36-still-single-finally-figured/)
 
@@ -50,7 +50,7 @@ Avoidantly attached people will often date a partner they initially think is ama
 
 > "Withdrawal tendencies are a coping mechanism cultivated in childhood. If we weren't getting our needs met we soon learn to retract within ourselves. Over time this coping strategy becomes second nature. When we get into a relationship, that feeling of needing to withdraw is initially masked by the oxytocin and different chemicals firing off within our brain. Over time those chemicals start to subside, the mask falls off of those inner emotions and we start feeling very vulnerable and agitated at the same time.
 >
-> One of these six basic human needs is the need for connection. Each and every single last one of us is wired for connection. When withdrawal coping mechanisms get triggered, we have one of our six basic human needs fighting inside for connection while at the same time this coping mechanism is fighting to keep distance. So on the one hand you have a very strong need for closeness, while at the same time you have a very strong need for distance. Both of these things battle it out inside of you, which makes you feel very uncomfortable pretty much 24 hours a day and it puts you into a fight or flight response, feeling the need to run as well as to stay. 
+> One of these six basic human needs is the need for connection. Each and every single last one of us is wired for connection. When withdrawal coping mechanisms get triggered, we have one of our six basic human needs fighting inside for connection while at the same time this coping mechanism is fighting to keep distance. So on the one hand you have a very strong need for closeness, while at the same time you have a very strong need for distance. Both of these things battle it out inside of you, which makes you feel very uncomfortable pretty much 24 hours a day and it puts you into a fight or flight response, feeling the need to run as well as to stay.
 >
 > So we feel torn. And because we're not able to see the future, we tell ourselves stories - and a lot of these stories have to do with the worst case scenario instead of the best-case scenario. When you tell yourself the worst case scenario, your idea turns into running instead of staying. This is the body's natural fear response. To counter it we must learn new ways of getting our needs met within the connection, and learn tell ourselves new stories."
 
@@ -66,4 +66,4 @@ There are a number of reasons you might fear losing yourself in a relationship, 
 
 - You believe that taking loving care of yourself, with no intent to harm another, is selfish - that being a caring person means you are willing to completely sacrifice yourself for others, even if it's not what you want or need to do.
 
-- You have a deep fear of rejection, and you believe you have to give yourself up in order to avoid being rejected. If someone wants a close partnership you think you won't be able to live up to their expectations, and you believe that no one will love you if you stay true to yourself. 
+- You have a deep fear of rejection, and you believe you have to give yourself up in order to avoid being rejected. If someone wants a close partnership you think you won't be able to live up to their expectations, and you believe that no one will love you if you stay true to yourself.
