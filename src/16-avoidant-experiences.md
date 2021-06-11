@@ -1,5 +1,4 @@
-# Avoidant Experiences
-https://www.freetoattach.com/avoidants-experiences
+# Appendix I: Avoidant Experiences
 
 Avoidants and those who date them tell their stories...
 

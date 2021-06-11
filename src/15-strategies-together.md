@@ -1,5 +1,4 @@
-# Strategies Together
-https://www.freetoattach.com/strategies-together
+# Chapter 15: Strategies Together
 
 > "A good partnership is not so much one between two healthy people (there aren’t many of these on the planet), it’s one between two demented people who have had the skill or luck to find a nonthreatening conscious accommodation between their relative insanities, in large part because they have a good grasp of how they are difficult to live with."
 

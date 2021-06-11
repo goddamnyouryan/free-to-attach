@@ -1,5 +1,4 @@
-# Strategies for a Partner
-https://www.freetoattach.com/strategies-for-a-partner
+# Chapter 14: Strategies for a Partner
 
 If you are in a relationship with someone with an avoidant attachment pattern, there are lots of things you can do to support their development and your own, and to improve the quality of your connection and the happiness you both feel. Also check out videos for partners in the [Video Tools](https://www.freetoattach.com/video-tools) section. If you are avoidant, see if you can show your partner this page. That may feel very exposing, but ultimately it can build trust and help you work together as a team.
 

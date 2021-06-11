@@ -1,5 +1,4 @@
 # About this Book
-https://www.freetoattach.com/about-this-site
 
 ## Who are you?
 

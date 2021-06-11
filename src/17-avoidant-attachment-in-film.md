@@ -1,5 +1,4 @@
-# Avoidant Attachment in Film
-https://www.freetoattach.com/in-film
+# Appendix II: Avoidant Attachment in Film
 
 Avoidants are everywhere in popular culture - it makes for great storyline tension! So our culture often glamourises avoidants and shows them enacting sudden magical transformations for their love interest.
 

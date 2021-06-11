@@ -1,5 +1,4 @@
-# Activate the New
-https://www.freetoattach.com/behaviour-strategies-3
+# Chapter 13: Activate the New
 
 > "Everyone wants to be with the perfect partner, but few people want to be the perfect partner. The vast majority of problems around 'finding someone' are caused by uneven expectations like this. But the best way to find an amazing person is to become an amazing person."
 

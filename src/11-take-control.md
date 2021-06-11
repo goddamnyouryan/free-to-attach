@@ -1,5 +1,4 @@
-# Take Control
-https://www.freetoattach.com/behaviour-strategies-1
+# Chapter 11: Take Control
 
 To start changing our behaviour, our biggest step is to reconnect with what we feel and need and how to get this met. This will gradually shift our operating model to allow our choices to come out of desire more than fear.
 

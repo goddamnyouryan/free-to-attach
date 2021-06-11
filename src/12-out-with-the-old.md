@@ -1,5 +1,4 @@
-# Out with the Old
-https://www.freetoattach.com/behaviour-strategies-2
+# Chapter 12: Out with the Old
 
 Now we're ready to start reprogramming our existing behaviours in dating & relationships.
 
