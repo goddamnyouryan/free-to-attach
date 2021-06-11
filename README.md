@@ -7,5 +7,5 @@ A markdown / ebook version of [freetoattach.com](https://www.freetoattach.com/)
 - Actually split out links and stuff into their own chapter
 
 ## To Build:
-- run `./build`. This will generate the pdf, epub and amazon files
+- run `./build`. This will generate the epub
 - Using pandoc 2.14.0.1
